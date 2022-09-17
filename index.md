@@ -1,4 +1,4 @@
-# Contact: whatsapp-solutions@proton.me
+# Whatsapp Automation Tools
 
 Whatsapp marketing tools. Loking for whatsapp solutions? 
 
